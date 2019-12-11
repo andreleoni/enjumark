@@ -1,0 +1,915 @@
+Marcas famosas dão show em vendas.
+
+Algumas marcas sempre conquistam a simpatia do Brasil, vendem muito mais rápido e por um preço ótimo. As top 100 mais adoradas são as seguintes:
+
+- Fast Fashion
+- Top brasileiras
+- Casuais
+- Luxo
+- Esporte & Street
+- Zara
+- Farm
+- Gap
+- Daslu
+- Track&field
+- Forever 21
+- Atmosphere
+- Abercrombie & fitch
+- Mixed
+- Vans
+- h&m
+- Thelure
+- Levi's
+- Ralph lauren
+- labellamafia
+- mango
+- costume
+- benetton
+- cris barros
+- nike
+- topshop
+- vizzano
+- banana republic
+- michael kors
+- adidas
+- uniqlo
+- handbook
+- ann taylor
+- christian dior
+- puma
+- sacada
+- anacapri
+- guess
+- gucci
+- von dutch
+- 284
+- fit
+- ray ban
+- marc jacobs
+- under armour
+- maria bonita extra
+- kipling
+- balenciaga
+- bobstore
+- lacoste
+- dolce e gabbana
+- leeloo
+- diesel
+- jimmy choo
+- my shoes
+- armani exchange
+- bottega veneta
+- totem
+- calvin klein
+- emilio pucci
+- shoestock
+- tommy hilfiger
+- it bag
+- via mia
+- chanel
+- cantão
+- kate spade
+- iodice
+- salvatore ferragamo
+- dumond
+- ellus
+- santa lolla
+- colcci
+- dudalina
+- richards
+- john john
+- rosa chá
+- melissa
+- farm
+- huis clos
+- ateen
+- le lis blanc
+- schutz
+- osklen
+- animale
+- victor hugo
+- amaro
+- arezzo
+- maria filó
+- bobo
+- tvz
+- triton
+- morena rosa
+- fillity
+- khelf
+- luiza barcelos
+- studio tmls
+- capodarte
+- antix
+- corello
+- spezzato
+- canal
+- luigi bertolli
+- m officer
+
+Além dessas, veja abaixo outras marcas que também são sucesso com nossa clientela:
+
+- & other stories
+- a brand
+- a.testoni
+- a.niemeyer
+- abercrombie & fitch
+- abs by allen schwartz
+- absolu paris
+- absurda
+- acqua marine
+- adidas
+- adô atelier
+- adolfo dominguez
+- adriana barra
+- adriana degreas
+- adrianna papell
+- aeropostale
+- aerosmith
+- afarra
+- agilita
+- água de coco
+- aishty
+- alaïa
+- alba
+- alberta ferretti
+- alessandro dell'acqua
+- alexander mqueen
+- alexander wang
+- alexandre herchcovitch
+- ali ro
+- alice + olivia
+- alix
+- alphorria
+- amapô
+- amaro
+- american apparel
+- american eagle
+- amici per amici
+- amissima
+- ana hickman
+- anacapri
+- andrea salleto
+- andrew marc
+- angel sanchez
+- animale
+- ann taylor
+- anna sui
+- anne fernandes
+- anne fontaine
+- anne kanner
+- anthony vaccarello
+- antik denim
+- antix
+- apartamento 03
+- apostrophe
+- aqua
+- aquazurra
+- arezzo
+- armani
+- armani exchange
+- aroeira abe
+- asos
+- asprey
+- ateen
+- atmosphere
+- azaleia
+- azzaro
+- b/yourself
+- badgley mischka
+- bagutta
+- balenciaga
+- bakers
+- balaia
+- balletto
+- bally
+- balmain
+- banana Republic
+- barbara Bui
+- barney's
+- barreds
+- basico
+- batiche
+- bato bato
+- BCBG maxazria
+- Bebe
+- bebela
+- Bello & Preciso
+- bel paoliello
+- benetton
+- Bergdorf Goodman
+- betseyjohnson
+- bimba y lola
+- birkenstock
+- black kabana
+- bless
+- blossy
+- blow-up
+- bluesteel
+- Blugirl
+- Blugirl Blumarine
+- Blumarine
+- bobbie-brooks
+- bobo
+- bobstore
+- bordello
+- bottega veneta
+- Breeder'sBrioni
+- Bruno Magli
+- Bulgari
+- Burberry
+- Burberry Brit
+- by champagne
+- c&a
+- Cacharel
+- Calvin Klein
+- calypso st barth
+- Cambridge Satchel Company
+- canal
+- Canali
+- candy
+- candy brown
+- cantão
+- capodarte
+- Caractère
+- carlos miele
+- Carmen Marc Valvo
+- carmen steffens
+- carmim
+- carol bassi
+- carol farina
+- carolina herrera
+- caroline kuchkarian
+- carrano
+- carrera
+- Cartier
+- Carven
+- cas
+- catarina park
+- Catherine Malandrino
+- cavalera
+- celia milani
+- celine
+- cervera
+- chan chan
+- chanel
+- Charlotte Olympia
+- Charvet
+- chasecult
+- chasse
+- chilli beans
+- Chloé
+- chocris
+- Chopard
+- chow
+- Christian Dior
+- Christian Lacroix
+- christian louboutin
+- Christiane Celle Calypso
+- Citizens of Humanity
+- Claude Montana
+- claudia simoes
+- Claudie Pierlot
+- clé
+- clockhouse
+- Club Monaco
+- Coach
+- colcci
+- Cole Haan
+- collins
+- colorado
+- columbia
+- comme des garçons
+- comptoir des cotonniers
+- condor
+- constança basto
+- converse all star
+- Co-Op Barneys NYC
+- corello
+- cori
+- cortelle
+- cos
+- costes
+- costume
+- cotton on
+- coty
+- couro fino
+- coven
+- cravo canela
+- crisalis
+- cris barros
+- crocs
+- cuesta blanca
+- Current Ellioto
+- Custo Barcelona
+- cw-x
+- d milton
+- D&G
+- dai bags
+- dakota
+- dalet
+- dalia collection
+- damyller
+- dani holzbach
+- danifer
+- dascenzi
+- daslu
+- datelli
+- David Meister
+- dbz
+- deletta
+- denim & co
+- Derek Lam
+- desigual
+- desnude
+- detonação
+- diane von furstenberg
+- diesel
+- disney
+- diva couture
+- DKNY
+- DKNY Jeans
+- dlolla
+- doce de coco
+- doce drama
+- doce maria
+- dolce & gabbana
+- dolce-vita
+- Doma
+- dona chica
+- donna mila
+- dossier
+- double zero
+- dr martens
+- dress to
+- Dries Van Noten
+- drop dead
+- drosófila
+- Dsquared
+- dudalina
+- dudu bertholini
+- due panno
+- dumond
+- Dunhill
+- durval
+- dzarm
+- Ed Hardy
+- eddie bauer
+- egrey
+- eileen fisher
+- Elie Tahari
+- elisa atheniense
+- ellus
+- Emanuel Ungaro
+- emilio pucci
+- emme
+- Emporio Armani
+- endless
+- Energie
+- Enzo Angiolini
+- Episode
+- equipment
+- Erdem
+- erre
+- Escada
+- espaço fashion
+- esprit
+- estação store
+- estudio chocolate
+- Etro
+- euro
+- evan picone
+- everlane
+- evoke
+- express
+- extrovertida
+- fabiana milazzo
+- fabrizio giannone
+- Façonnable
+- fafe
+- faith connexion
+- farm
+- farm para adidas
+- feito à mao
+- Fendi
+- fenske
+- fernanda shammas
+- fernanda yamamoto
+- fernando pires
+- ferri
+- fethie
+- fidalga
+- fiever
+- fillity
+- filomena
+- fima tricot
+- fit
+- flavia aranha
+- flavia brantt
+- fm pantalons
+- folic
+- follium
+- forever 21
+- formula
+- forum
+- fossil
+- Fraccari
+- Frank Lyman
+- fuel
+- Furla
+- fyi
+- Gai Mattiolo
+- galeria tricot
+- gallery
+- gap
+- generalli shoes
+- gerard darel
+- Giambattista Valli
+- Gianfranco Ferre
+- Gianni Versace
+- Gianvito Rossi
+- gig couture
+- Giorgio Armani
+- Giusepe Zanotti
+- Givenchy
+- gloria coelho
+- Gola
+- Golden Goose Deluxe Brand
+- gonna
+- gracie
+- gregory
+- Gucci
+- guerlain
+- guess
+- Guido Pasquali
+- Guy Laroche
+- h&m
+- hadassa
+- Halston Heritage
+- handbook
+- harley davidson
+- Harmont & Blaine
+- haute
+- Haute Hippie
+- helena bordon
+- Helmut Lang
+- helo pinheiro
+- hering
+- Hermès
+- Herve Leger
+- hirus
+- Hogan
+- hollister
+- hudson
+- Hugo Boss
+- huis clos
+- Hunter
+- hype beachwear
+- icone
+- illesteva
+- imagivan
+- inc international concepts
+- incy
+- index denim
+- insecta
+- instant
+- iodice
+- iorane
+- ipanema starck
+- isabel marant
+- isabela matte
+- isolda
+- Issa
+- it bag
+- J Brand
+- j cosi
+- J Crew
+- J. Mendel
+- Jamin Puech
+- jansport
+- Jason WU
+- javali
+- jayden
+- Jean Paul Gaultier
+- Jenny Packham
+- jessica simpson
+- Jil Sander
+- Jill Stuart
+- Jimmy Choo
+- jin
+- jingles
+- jo/dri
+- John Bartlett
+- John Galliano
+- john john
+- joie
+- jorge bischoff
+- Joseph
+- juicy couture
+- julian marcuir
+- juliana bicuda
+- juliana jabour
+- junya watanabe
+- Just Cavalli
+- kabene
+- kalline couros
+- Karen Millen
+- karen scott
+- kate spade
+- Kaufman Franco
+- Kay Unger
+- kenneth cole
+- Kenzo
+- Kenzo Jeans
+- Kenzo Jungle
+- khelf
+- kin mao
+- kinca
+- Kipling
+- kitson
+- Kiwi Saint Tropez
+- kodific
+- kyle jenner
+- la femme
+- La Perla
+- labellamafia
+- lacoste
+- lady rocky
+- lança perfume
+- Lancel
+- Lanvin
+- lara
+- lavish by tricia milaneze
+- le lis blanc
+- le postiche
+- le soleil d'été
+- le ventana
+- leeloo
+- left
+- lemon
+- lenny e cia
+- Leonard
+- les cloches
+- les copains
+- letage
+- levi's
+- lica melzer + guga gonçalves
+- like you
+- liliana
+- lily concept
+- lisanza
+- Liu Jo
+- Locman
+- loja três
+- lolitta
+- London Shop
+- longchamp
+- lorane
+- lorenzo merlino
+- Loro Piana
+- Louboutin
+- louche
+- louis vuitton
+- louloux
+- lourice martinelli
+- lu monteiro
+- Luca Luca
+- lucca vasconcellos
+- lucce
+- Lucky brand
+- lucy in the sky
+- lucy paris
+- Luella
+- luigi bertolli
+- luiza perea
+- luiza barcelos
+- luz da lua
+- luzia fazzolli
+- M Missoni
+- m officer
+- madah
+- madewell
+- mais um
+- maison jules
+- maison spa
+- maje
+- Maje
+- majorelle
+- malagueta
+- Malandrino
+- malhas e cia
+- Malo
+- mango
+- Manolo Blahnik
+- mansur gavriel
+- mapa da lua
+- mara mac
+- Marc by Marc Jacobs
+- Marc Jacobs
+- Marchesa Notte
+- marfinno
+- maria bonita
+- Maria Di Ripabianca
+- maria gueixa
+- maria bonita extra
+- maria filo
+- marie claire
+- marisa
+- Marni
+- martha medeiros
+- Mary Frances
+- masqué
+- Matthew Williamson
+- max glamm
+- Max Mara
+- Max Studio
+- maxima
+- mc benett
+- medi
+- melissa
+- memo
+- mezzo-punto
+- Michael Kors
+- Michel Perry
+- michele neyret
+- miezko
+- mih jeans
+- Mikimoto
+- milho guerreiro
+- miss bik bok
+- miss dorothy
+- miss e misses
+- miss sporty
+- Missoni
+- Miu Miu
+- mixage
+- mixed
+- mizuno
+- mob
+- moda em casa
+- monacri
+- Moncler
+- Monique Lhuillier
+- monopoly
+- Mont Blanc
+- moon & meadow
+- morena rosa
+- Moschino
+- Moschino Jeans
+- mottive
+- mr cat
+- Mulberry
+- mundial
+- mustache
+- my basic
+- my fots
+- my-dress
+- my-shoes
+- naf naf
+- nanda maggiori
+- Nanette Lepore
+- Narciso Rodriguez
+- nasty gal
+- nayara cruz
+- new balance
+- new people
+- new romantics
+- next
+- nicole lee
+- Nicole Miller
+- nicole's closet
+- nike
+- Nina Ricci
+- nitron
+- nk store
+- norah russo
+- nu new york
+- nuage
+- oakley
+- Ohne Titel
+- Oliver Peoples
+- olympiah
+- one up
+- onitsuka
+- ópera rock
+- Oscar de la Renta
+- osklen
+- outer
+- oysho
+- pa concept
+- paco rabanne
+- Paige
+- Paper Denim
+- paruolo
+- pat pat's
+- patchoulee
+- patricia geyer
+- Patrick Gerard
+- patty ramany
+- Paul & Joe
+- Paul Frank
+- Paul Smith
+- paula ferber
+- paula raia
+- paula villalonge
+- Paule Ka
+- pedro lourenço
+- Peter Pilotto
+- Phillip Lim
+- Philosophy
+- Piazza Sempione
+- pierre cardin
+- Pilar Rossi
+- pilche
+- pink & co
+- pink victoria's secret
+- Pinko
+- pinkpoá
+- polaroid
+- pollymaggoo
+- polo ralph lauren
+- Polo Ralph Lauren
+- pool
+- pop up
+- prada
+- Prada
+- prem sarani
+- Pretty Green
+- Pringle of Scotland
+- Proenza Schouler
+- program moda plus size
+- prune
+- Pucci
+- puma
+- Pure DKNY
+- Rag & Bone
+- Ralph Lauren
+- ramarim
+- rampage
+- rapsódia
+- raquel mattar
+- Ray Ban
+- Reaction Kenneth Cole
+- Rebecca Minkoff
+- Rebecca Taylor
+- Red Valentino
+- redley
+- regina rios
+- reinaldo lourenço
+- Reiss
+- renata mello
+- Renaud Pellegrino
+- Rene Caovilla
+- repetto
+- replay
+- Richard Tyler
+- richards
+- Robert Rodriguez
+- Roberto Cavalli
+- Roberto Cavalli Class
+- Rock and Republic
+- rogério lima
+- Roland Mouret
+- Roland Nivelais
+- romeo & juliet
+- ronni nicole
+- rosa chá
+- rosie neira
+- roxane
+- ruby rox
+- saad
+- sacada
+- salvatore ferragamo
+- sandra darren
+- sandra senamo
+- Sandro
+- Sandro Ferrone
+- santa lolla
+- sarah chofakian
+- schutz
+- Sebastian
+- See by Chloé
+- Self Portrait
+- sergio rossi
+- Sergio Rossi
+- Seven for All Making
+- shoestock
+- shoulder
+- siberian
+- Sigerson Morrison
+- silence + noise
+- skazi
+- skinnwille
+- skunk
+- Sonia Rykiel
+- Spektre
+- spezzato
+- Sport MaxStella Jean
+- Stella Mc Cartney
+- steve madden
+- Stuart Weitzman
+- studio tmls
+- suely caliman
+- super suite seventy seven
+- superga
+- swarovski
+- Swatch
+- Swiss Army
+- Sylvie Schimmel
+- tabita
+- Tadashi Shoji
+- talie nk
+- talita kume
+- tao galeria
+- taquilla
+- Tara Jarmon
+- Ted Baker
+- tee match
+- Temperley
+- tereza santos
+- teti gio
+- the cuffed
+- the north face
+- thelure
+- Thierry Mugler
+- thomas pink
+- Thomas Wylde
+- tibi
+- Tibi
+- Tiffany&Co
+- tigresse
+- Tissot
+- tng
+- Tod's
+- Tom Ford
+- tommy bahamas
+- Tommy Hilfiger
+- topshop
+- Tory Burch
+- totem
+- track&field
+- Tracy Reese
+- Trina Turk
+- triton
+- tufi duek
+- tvz
+- ugg
+- um vestido y um amor
+- under armour
+- Ungaro
+- uniqlo
+- urban outfitters
+- usaflex
+- uza
+- Valentino
+- van heusen
+- Vanessa Bruno
+- vans
+- vera & lucy
+- vera wang
+- Versace
+- Vertigo
+- verty
+- via-mia
+- victor-hugo
+- Victoria Beckham
+- victoria's secrets
+- victorinox
+- Vilebrequin
+- Vineyard Vines
+- Vionnet
+- vivara
+- vix paula hermanny
+- vizzano
+- von dutch
+- wagner kallieno
+- walter rodrigues
+- Walter Steiger
+- Warehouse
+- wedze
+- west coast
+- wild style
+- willow e clay
+- wishin'
+- Woo's Saint Tropez
+- wrangler
+- xscape
+- yang
+- yellow factory
+- yessica
+- Yigal Azrouël
+- yogini
+- Yohji Yamamoto
+- yong feng
+- Yves Saint Laurent
+- Z Zegna
+- Zac Posen
+- Zadig & Voltaire
+- Zagliani
+- zamany jeans
+- zami concept
+- zara
+- zeferino
+- zinco
+- zolly
+- zuiki
